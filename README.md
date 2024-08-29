@@ -8,3 +8,4 @@
 🎯 Goal: Empower farmers with advanced technology to mitigate risks, protect crops, and enhance agricultural productivity. 🌱
 
 🔍 Benefits: Early detection, cost-effective interventions, and improved crop management. 🚀
+Thank you!!!
